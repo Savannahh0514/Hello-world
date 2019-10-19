@@ -1,2 +1,1 @@
-
-The beginning of something wonderful and the ABSOLUTE basics. 
+My name is Savannah Darlene Hall. I was born on 12/20/1994 @ 12:20 pm. Coincidence? Who really knows! I am a mother of 2 toddlers, who are only 14 months apart so you can imagine that with working and going to school I am a VERY busy person. I work at a live in facility for the Cognitively impaired as a Direct Care professional. I am a bit feral, but the good kind, The barefoot, hair a mess kind. My kids have mostly followed suit. Stay Wild Gypsy Child 
